@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ollkull
+- 👋 Hi, I’m Olga
 - 👀 I’m interested in system and business analysis
 - Telegram @ollkull
 
